@@ -28,7 +28,7 @@
 
 
 ## 🤝 Connect With Me
-- 💼 LinkedIn: [ddod](https://www.linkedin.com/in/carolyn-joseph/)
+- 💼 LinkedIn: [carolynjoseph](https://www.linkedin.com/in/carolyn-joseph/)
 
 
 ---
